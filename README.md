@@ -1,2 +1,2 @@
 ## Welcome to my profile fellas ┌(˘⌣˘)ʃ
-<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTZ1emswYm5ibWVnNTJwb2Y2Z3psYTd3YTQwN3RiZzhuMHNlMG10bCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/fCUCaV5GiyiUVUit9L/giphy.gif" width="100%" height="auto" />
+<img src="https://media.giphy.com/media/payr6u9f4Pa5zYGDid/giphy.gif?cid=790b7611ttgz6mzpnc754s8cdve8g6y0xag9yazakb1mrncu&ep=v1_gifs_search&rid=giphy.gif&ct=g" width="100%" height="auto" />
